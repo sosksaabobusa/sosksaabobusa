@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @sosksaabobusa
+- 👀 I’m interested in Minecraft dungeons
+- 🌱 I’m currently learning in shool
